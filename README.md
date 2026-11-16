@@ -10,7 +10,7 @@ An ADHD planner for exam season — this student planner gives you a 55-page pri
 
 Shop on Etsy: https://www.etsy.com/shop/YoungsterGoodies
 
-This planner: https://www.etsy.com/listing/4588292052/halloween-party-invitation-template
+This planner: https://www.etsy.com/listing/4597989735/adhd-exam-prep-planner-printable
 
 ## What's Inside (55 pages)
 
